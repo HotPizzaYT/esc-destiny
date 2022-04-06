@@ -31,9 +31,17 @@ Justin stormed off into the distance where the group soon followed.
 
 "Too bad, the rest of the group decided it was a good decision," replied Casey, with an annoyed tone.
 
-The group headed to a nearby McDonald's just down town.
+Everyone hopped into Justin's car, whose license plate read "L8RSK8R."
+
+The highway road was glistening with that five o'clock sun, and long shadows everywhere.
+
+The sky was littered with clouds as far as the eye could see.
+
+This is the start of our journey, the start of something new.
 
 ~~
+
+5:12 PM, McDonald's
 
 "I want uhhh... Shit, what did you guys want again?" asked Casey.
 
@@ -62,6 +70,28 @@ They recieved their food and sat down.
 "I don't blame you. I don't talk much in school. That's mainly because I don't wanna get in trouble for talking and whatnot," said Brandon.
 
 "Oh, cool, I guess," said Justin.
+
+They ate their food in silence.
+
+Justin's phone buzzed.
+
+"Are you going to come home soon?", his phone's text messages read.
+
+Justin texted back his mother, "Yes, mom. I'm gonna leave here from McDonald's. Love you! xoxo."
+
+"By the way, what was you doing when you was sick?" asked Justin.
+
+"Nothin', was just playing video games on my Xbox 360," answered Brandy.
+
+"You have one of those?" said Justin in amazement.
+
+"Yeah, and I got it modded too," said Brandy.
+
+"How?" asked Justin.
+
+"Well, that's a long proccess, and I don't want to explain it all to you for time's sake," answered Brandy.
+
+"Welp, looks like everyone's finished, let's head home guys," said Justin.
 
 The group finished their food and headed home.
 
@@ -283,6 +313,8 @@ Casey's ability: Manipulation of any electronics, including mechanical objects l
 -- Author's note --
 
 Thanks you for reading! Before you continue, I want to thank my friend Dr. Minty Fresh on Discord for making the story that this is based off of, because I really enjoyed it. That's why I made this, to give readers something different to read while [Esc] REALITY is being worked on. If you want to support him, contact him on Discord for any possible ways you can donate money to him, because I assume that [Esc] REALITY will always be free.
+
+Edit: Merged Chapter 1 & 2
 
 Minty's Discord:
 
