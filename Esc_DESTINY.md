@@ -1,3 +1,4 @@
+
 # The Big E
 March 13th, 2009, 4:25 PM.
 
@@ -31,17 +32,9 @@ Justin stormed off into the distance where the group soon followed.
 
 "Too bad, the rest of the group decided it was a good decision," replied Casey, with an annoyed tone.
 
-Everyone hopped into Justin's car, whose license plate read "L8RSK8R."
-
-The highway road was glistening with that five o'clock sun, and long shadows everywhere.
-
-The sky was littered with clouds as far as the eye could see.
-
-This is the start of our journey, the start of something new.
+The group headed to a nearby McDonald's just down town.
 
 ~~
-
-5:12 PM, McDonald's
 
 "I want uhhh... Shit, what did you guys want again?" asked Casey.
 
@@ -59,7 +52,7 @@ This is the start of our journey, the start of something new.
 
 "Nah, I had dinner before I came over to the Big E," replied Justin.
 
-They recieved their food and sat down.
+They received their food and sat down.
 
 "So what have you been up to lately?" Justin asked Brandy.
 
@@ -70,28 +63,6 @@ They recieved their food and sat down.
 "I don't blame you. I don't talk much in school. That's mainly because I don't wanna get in trouble for talking and whatnot," said Brandon.
 
 "Oh, cool, I guess," said Justin.
-
-They ate their food in silence.
-
-Justin's phone buzzed.
-
-"Are you going to come home soon?", his phone's text messages read.
-
-Justin texted back his mother, "Yes, mom. I'm gonna leave here from McDonald's. Love you! xoxo."
-
-"By the way, what was you doing when you was sick?" asked Justin.
-
-"Nothin', was just playing video games on my Xbox 360," answered Brandy.
-
-"You have one of those?" said Justin in amazement.
-
-"Yeah, and I got it modded too," said Brandy.
-
-"How?" asked Justin.
-
-"Well, that's a long proccess, and I don't want to explain it all to you for time's sake," answered Brandy.
-
-"Welp, looks like everyone's finished, let's head home guys," said Justin.
 
 The group finished their food and headed home.
 
@@ -155,7 +126,7 @@ What happened would be a chain of events that neither of Justin's friends would 
 
 ~~ END OF THE BIG E \~\~
 
-## Lofi, stop!
+## Lofi, Stop!
 The day played out normal until lunchtime. Justin's usual bullies were standing next to the cafeteria door.
 
 Justin saw this as an opportunity to take action, so he shoved one of his bullies. This triggered his ability, causing him to pause time for one minute. He realized his amazing power was a force to be reckoned with. His ability allowed him to stop time, of course with an added limit of 60 seconds and 30 minute cooldown.
@@ -314,11 +285,22 @@ Casey's ability: Manipulation of any electronics, including mechanical objects l
 
 Thanks you for reading! Before you continue, I want to thank my friend Dr. Minty Fresh on Discord for making the story that this is based off of, because I really enjoyed it. That's why I made this, to give readers something different to read while [Esc] REALITY is being worked on. If you want to support him, contact him on Discord for any possible ways you can donate money to him, because I assume that [Esc] REALITY will always be free.
 
-Edit: Merged Chapter 1 & 2
-
 Minty's Discord:
 
 `Dr. Minty Fresh#7815`
 
 == Chapter 1 END ==
+  
+# Our Heroes
 
+Born in 1992, Justin Kyles was born in Marshall, Michigan, where he spent 5 years of his life. He moved to Massachusetts due to some drama about him spreading across his school and neighborhood. Justin was very fond of computers and always found them amazing. He first learned to code at the age of 6. His first program was written in BASIC. Not long after this endeavor he joined a computer programming club, where he discovered his three best friends, David, Jude, and Melvin. He would discover his love for the GameCube and GameBoy Advance games at age 10.
+
+He never thought that he would obtain such abilities, though Justin always dreamed about controlling time. He believed that if he were to control time, he could stop - shall we say controversial - events from happening. He is also a sole believer in alternate timelines. 
+
+From this, Justin had thought, that maybe his abilities were tied to his deepest desires that had been in the back of his mind when they appeared. There was no way that his ability came out of the blue.
+
+All Justin wanted was a normal life. Now things have twisted.
+
+~~
+
+Katy, born in 1991, August 8th, in Staten Island, New York, spent most of her life making friends. At a young age she was gifted a cell phone, which fueled her obsession with texting and calling others over the phone. Eventually at age 5, she discovered the internet and made some long distance friends, Lily, Quanisha, Sally, and Fred. When her parents tragically died in a fire in 2001, she had to move to Massachusetts to her aunt Sabrina's.
