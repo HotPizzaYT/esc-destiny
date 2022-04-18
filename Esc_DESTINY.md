@@ -293,7 +293,7 @@ Minty's Discord:
   
 # Our Heroes
 
-Born in 1992, Justin Kyles was born in Marshall, Michigan, where he spent 5 years of his life. He moved to Massachusetts due to some drama about him spreading across his school and neighborhood. Justin was very fond of computers and always found them amazing. He first learned to code at the age of 6. His first program was written in BASIC. Not long after this endeavor he joined a computer programming club, where he discovered his three best friends, David, Jude, and Melvin. He would discover his love for the GameCube and GameBoy Advance games at age 10.
+Born in 1992, January 17th, Justin Kyles was born in Marshall, Michigan, where he spent 5 years of his life. He moved to Massachusetts due to some drama about him spreading across his school and neighborhood. Justin was very fond of computers and always found them amazing. He first learned to code at the age of 6. His first program was written in BASIC. Not long after this endeavor he joined a computer programming club, where he discovered his three best friends, David, Jude, and Melvin. He would discover his love for the GameCube and GameBoy Advance games at age 10.
 
 He never thought that he would obtain such abilities, though Justin always dreamed about controlling time. He believed that if he were to control time, he could stop - shall we say controversial - events from happening. He is also a sole believer in alternate timelines. 
 
@@ -303,4 +303,16 @@ All Justin wanted was a normal life. Now things have twisted.
 
 ~~
 
-Katy, born in 1991, August 8th, in Staten Island, New York, spent most of her life making friends. At a young age she was gifted a cell phone, which fueled her obsession with texting and calling others over the phone. Eventually at age 5, she discovered the internet and made some long distance friends, Lily, Quanisha, Sally, and Fred. When her parents tragically died in a fire in 2001, she had to move to Massachusetts to her aunt Sabrina's.
+Katy Thompson, born in 1991, August 8th, in Staten Island, New York, spent most of her life making friends. At a young age she was gifted a cell phone, which fueled her obsession with texting and calling others over the phone. Eventually at age 5, she discovered the internet and made some long distance friends, Lily, Quanisha, Sally, and Fred. When her parents tragically died in a fire in 2001, she had to move to Massachusetts to her aunt Sabrina's.
+
+~~
+
+Brandy Benson, born 1992 March 6th, in Fulton, Alabama. His favorite activities include gaming, walks in the park, drawing, and hiking. He loves comic books and have been reading them ever since he was five. When he was young, he wanted to be a super hero when he grew up. But now he knows that not everyone can be a hero. His favorite subject in school is science. Often times when he was a kid, he was bullied for being a nerd. He always wanted powers, and now he has them. He had no idea where his powers came from, but just accepted that it was his fate to obtain them. It was his destiny.
+
+~~
+
+Casey Lopez is very mysterious, and not much is known about her, other than she came from Toronto, Canada. She is age 17.
+
+# The Lesser Ones
+
+This chapter is TBA
