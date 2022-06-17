@@ -1,6 +1,6 @@
 
 # The Big E
-March 13th, 2009, 4:25 PM.
+May 13th, 2009, 4:25 PM.
 
 Casey, Brandy, Katy and Justin were in line to have their fortunes told. Luckily, it was a Tuesday, so all fortunes were 20% off.
 
@@ -311,7 +311,7 @@ Brandy Benson, born 1992 March 6th, in Fulton, Alabama. His favorite activities 
 
 ~~
 
-Casey Lopez is very mysterious, and not much is known about her, other than she came from Toronto, Canada. She is age 17.
+Casey Lopez likes phone games such as *insert obscure three-of-a-kind or more matching game from early 2009 for flip phones here, most likely Bejeweled Twist.*, and she has a mysterious past, but not much is known, other than she came from Toronto, Canada. She is age 17.
 
 # The Lesser Ones
 
