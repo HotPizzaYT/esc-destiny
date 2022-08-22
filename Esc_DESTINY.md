@@ -1,3 +1,12 @@
+# Prologue
+
+About 3,000 years ago, a king in Egypt was buried. His name was King Tutankhamun. Legend has it that a mysterious sheet of clothing lies somewhere in the ruins of his burial site, which is riddled with traps. The writing on the wall reads: "He who knits cloth from the fabric and string of the Cloth of Time will be granted unlimited access to change fate & destiny itself." To this very day, scientists have been very confused, as they cannot find this illusive sheet of fabric. Experts claim that the fabric and thread was sold off long long ago and is probably still in circulation. 
+
+They say you cannot change fate, but you can control your destiny. It is similar to being able to control your dreams through lucid dreaming techniques, but not being able to control reality. You see, destiny is easily controllable because it is what is happening in the present. The Cloth of Time puts a fork into the future, causing events to unfold before it, therefore rendering your destiny null and void.
+
+In the wrong hands, this could spell the end of the Earth. Luckily, nobody has managed to control fate, until now.
+
+In this story we will follow the main characters, Casey, Brandy, Katy, and Justin in the spring of 2009, who have lived completely normal lives for most of their lives, as we journey through a world with special supernatural drugs and abilities as they try to prevent the end of the world. They are told their lives will end by next month and they must do whatever they can in their power to Escape their Fate and write their own Destiny. Will they be able to fight the time-altering drug cartel ESC Fate, which is a mysterious entity that sells drugs of all kinds of varieties that give the consumer supernatural abilities? Or will they die trying?
 
 # The Big E
 May 13th, 2009, 4:25 PM.
@@ -69,8 +78,14 @@ The group finished their food and headed home.
 ~~
 
 On the way home, Justin got a text from a number he didn't recognize that read as follows:
+About 3,000 years ago, a king in Egypt was buried. His name was King Tutankhamun. Legend has it that a mysterious sheet of clothing lies somewhere in the ruins of his burial site, which is riddled with traps. The writing on the wall reads: "He who knits cloth from the fabric and string of the Cloth of Time will be granted unlimited access to change fate & destiny itself." To this very day, scientists have been very confused, as they cannot find this illusive sheet of fabric. Experts claim that the fabric and thread was sold off long long ago and is probably still in circulation. 
 
-`WE ARE ESC DESTINY. THAT FORTUNE THAT WAS TOLD IS REAL... ALL SIX OF YOU HAVE UNPRECEDENTED POWER THAT MUST BE ELIMINATED AT ALL COSTS.`
+They say you cannot change fate, but you can control your destiny. It is similar to being able to control your dreams through lucid dreaming techniques, but not being able to control reality. You see, destiny is easily controllable because it is what is happening in the future. The Cloth of Time puts a fork into the future, causing events to unfold before it. 
+
+In the wrong hands, this could spell the end of the Earth. Luckily, nobody has managed to control fate, until now.
+
+In this story we will follow the main characters, Casey, Brandy, Katy, and Justin as we journey through a world with special supernatural drugs and abilities as they try to prevent the end of the world. They must Escape their fate and write their own Destiny.
+`WE ARE ESC FATE. THAT FORTUNE THAT WAS TOLD IS REAL... ALL SIX OF YOU HAVE UNPRECEDENTED POWER THAT MUST BE ELIMINATED AT ALL COSTS.`
 
 "What the hell is ESC Destiny?!?!?!?" muttered Justin.
 
@@ -315,4 +330,4 @@ Casey Lopez likes phone games such as *insert obscure three-of-a-kind or more ma
 
 # The Lesser Ones
 
-This chapter is TBA
+This chapter is coming soon September 12th 2022.
