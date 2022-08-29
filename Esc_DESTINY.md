@@ -78,7 +78,8 @@ They received their food and sat down.
 The group finished their food and headed home.
 
 ~~
-(I just realized I accidentally pasted the intro and lost all of the text that came before this.)
+
+On the way home, Justin got a text from a number he didn't recognize that read as follows:
 `WE ARE ESC FATE. THAT FORTUNE THAT WAS TOLD IS REAL... ALL SIX OF YOU HAVE UNPRECEDENTED POWER THAT MUST BE ELIMINATED AT ALL COSTS.`
 
 "What the hell is ESC Destiny?!?!?!?" muttered Justin.
