@@ -2,16 +2,18 @@
 
 About 3,000 years ago, a king in Egypt was buried. His name was King Tutankhamun. Legend has it that a mysterious sheet of clothing lies somewhere in the ruins of his burial site, which is riddled with traps. The writing on the wall reads: "He who knits cloth from the fabric and string of the Cloth of Time will be granted unlimited access to change fate & destiny itself." To this very day, scientists have been very confused, as they cannot find this illusive sheet of fabric. Experts claim that the fabric and thread was sold off long long ago and is probably still in circulation. 
 
-They say you cannot change fate, but you can control your destiny. It is similar to being able to control your dreams through lucid dreaming techniques, but not being able to control reality. You see, destiny is easily controllable because it is what is happening in the present. The Cloth of Time puts a fork into the future, causing events to unfold before it, therefore rendering your destiny null and void.
+They say you cannot change fate, but you can control your destiny. It is similar to being able to control your dreams through lucid dreaming techniques, but not being able to control reality. You see, destiny is easily controllable because it is what is happening in the present. The Cloth of Time puts a fork into the future, causing events to unfold before it, therefore rendering your destiny null and void. 
 
 In the wrong hands, this could spell the end of the Earth. Luckily, nobody has managed to control fate, until now.
 
-In this story we will follow the main characters, Casey, Brandy, Katy, and Justin in the spring of 2009, who have lived completely normal lives for most of their lives, as we journey through a world with special supernatural drugs and abilities as they try to prevent the end of the world. They are told their lives will end by next month and they must do whatever they can in their power to Escape their Fate and write their own Destiny. Will they be able to fight the time-altering drug cartel ESC Fate, which is a mysterious entity that sells drugs of all kinds of varieties that give the consumer supernatural abilities? Or will they die trying?
+Since the beginning of recorded history, hallucinations have been encountered in the stage just before sleep begins. This phenomenon is known as "hypnagogic hallucinations". Most hallucinations are often nonsensical, when the effect is strong enough sentences can begin to form as auditory hallucinations, and random enlightening thoughts occur.  
+
+In this story we will follow the main characters, Casey, Brandon, Katy, and Justin in the spring of 2009, who have lived completely normal lives for most of their lives, as we journey through a world with special supernatural drugs and abilities as they try to prevent the end of the world. They are told their lives will end by next month and they must do whatever they can in their power to Escape their Fate and write their own Destiny. Will they be able to fight the time-altering drug cartel ESC Fate, which is a mysterious entity that sells drugs of all kinds of varieties that give the consumer supernatural abilities? Or will they die trying?
 
 # The Big E
 May 13th, 2009, 4:25 PM.
 
-Casey, Brandy, Katy and Justin were in line to have their fortunes told. Luckily, it was a Tuesday, so all fortunes were 20% off.
+Casey, Brandon, Katy and Justin were in line to have their fortunes told. Luckily, it was a Tuesday, so all fortunes were 20% off.
 
 Her name was Didi the fortune teller. She rubbed her magical orb and patted it a few times.
 
@@ -31,13 +33,13 @@ Justin stormed off into the distance where the group soon followed.
 
 "But please, don't be so upset over it," she added.
 
-"Wait, didn't she say that we would die next month?" Brandy gulped and swallowed his words anxiously.
+"Wait, didn't she say that we would die next month?" Brandon gulped and swallowed his words anxiously.
 
 "But like, only 70% of fortunes are true," replied Katy.
 
 "Let's go grab some food at Micky Dee's," Casey interrupted.
 
-"But, I hate McDonald's!" whined Brandy.
+"But, I hate McDonald's!" whined Brandon.
 
 "Too bad, the rest of the group decided it was a good decision," replied Casey, with an annoyed tone.
 
@@ -47,7 +49,7 @@ The group headed to a nearby McDonald's just down town.
 
 "I want uhhh... Shit, what did you guys want again?" asked Casey.
 
-"I want a quarter pounder with large fries and a Mountain Dew," said Brandy.
+"I want a quarter pounder with large fries and a Mountain Dew," said Brandon.
 
 "I just want a McChicken, that's all," said Katy.
 
@@ -63,9 +65,9 @@ The group headed to a nearby McDonald's just down town.
 
 They received their food and sat down.
 
-"So what have you been up to lately?" Justin asked Brandy.
+"So what have you been up to lately?" Justin asked Brandon.
 
-"Just had to finish 4 days worth of homework because I was sick with the flu," Brandy replied.
+"Just had to finish 4 days worth of homework because I was sick with the flu," Brandon replied.
 
 "Really? I didn't even know you was gone," said Justin.
 
@@ -76,15 +78,7 @@ They received their food and sat down.
 The group finished their food and headed home.
 
 ~~
-
-On the way home, Justin got a text from a number he didn't recognize that read as follows:
-About 3,000 years ago, a king in Egypt was buried. His name was King Tutankhamun. Legend has it that a mysterious sheet of clothing lies somewhere in the ruins of his burial site, which is riddled with traps. The writing on the wall reads: "He who knits cloth from the fabric and string of the Cloth of Time will be granted unlimited access to change fate & destiny itself." To this very day, scientists have been very confused, as they cannot find this illusive sheet of fabric. Experts claim that the fabric and thread was sold off long long ago and is probably still in circulation. 
-
-They say you cannot change fate, but you can control your destiny. It is similar to being able to control your dreams through lucid dreaming techniques, but not being able to control reality. You see, destiny is easily controllable because it is what is happening in the future. The Cloth of Time puts a fork into the future, causing events to unfold before it. 
-
-In the wrong hands, this could spell the end of the Earth. Luckily, nobody has managed to control fate, until now.
-
-In this story we will follow the main characters, Casey, Brandy, Katy, and Justin as we journey through a world with special supernatural drugs and abilities as they try to prevent the end of the world. They must Escape their fate and write their own Destiny.
+(I just realized I accidentally pasted the intro and lost all of the text that came before this.)
 `WE ARE ESC FATE. THAT FORTUNE THAT WAS TOLD IS REAL... ALL SIX OF YOU HAVE UNPRECEDENTED POWER THAT MUST BE ELIMINATED AT ALL COSTS.`
 
 "What the hell is ESC Destiny?!?!?!?" muttered Justin.
